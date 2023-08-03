@@ -1,1 +1,1 @@
-# knowyourtradition
+# know-your-tradition
